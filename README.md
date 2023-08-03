@@ -1,0 +1,2 @@
+# Cheaper-smarter-
+Easy way 
